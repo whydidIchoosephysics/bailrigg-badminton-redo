@@ -7,4 +7,4 @@ https://whydidichoosephysics.github.io/bailrigg-badminton-redo/
 View previous page hosted on university servers at:
 https://www.lancaster.ac.uk/staff/drummonn/Bailrigg_Badminton/
 
-This information is coorect as of 29/05/2024
+This information is correct as of 29/05/2024
